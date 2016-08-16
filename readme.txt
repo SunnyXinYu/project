@@ -8,6 +8,6 @@ dididache
 what are you doing?
 hahha
 so many
-who aer you 
+who are you 
 who are you 
 
